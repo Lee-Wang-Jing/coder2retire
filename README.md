@@ -50,4 +50,4 @@
 > 好友申请时，直接带上 **支付宝口令红包**，别的一律无视。
 
 
-![image](https://img.picui.cn/free/2025/03/19/67da53aec9640.jpg)
+![image](https://img.picui.cn/free/2025/03/19/67da541d863fb.jpg)
